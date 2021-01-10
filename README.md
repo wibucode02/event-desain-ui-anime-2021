@@ -1,2 +1,3 @@
 # event-desain-ui-anime-2021
-About
+
+#### Daftar Submission Event UI Design Anime
