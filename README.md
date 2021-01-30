@@ -127,38 +127,9 @@ https://www.figma.com/file/6xRNnfcgEerJo9BSoJEX5q/Wibucode-Event-Diko-Digital-Ko
 https://www.figma.com/file/7cx7fmy35m7LQjnBa2bmEr/Nimeku?node-id=0%3A1
 
 
+**26.Ilham Adiputra**
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+https://www.figma.com/file/TwaEExblpP7x1ATPsZJAsi/Untitled?node-id=2%3A45
 
 
 
