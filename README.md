@@ -132,4 +132,9 @@ https://www.figma.com/file/7cx7fmy35m7LQjnBa2bmEr/Nimeku?node-id=0%3A1
 https://www.figma.com/file/TwaEExblpP7x1ATPsZJAsi/Untitled?node-id=2%3A45
 
 
+**27.Andi Bahtiar**
+
+https://www.figma.com/file/wTM4sVQUalPMkM76aNpNFN/event-anime?node-id=0%3A1
+
+
 
