@@ -137,9 +137,4 @@ https://www.figma.com/file/TwaEExblpP7x1ATPsZJAsi/Untitled?node-id=2%3A45
 https://www.figma.com/file/wTM4sVQUalPMkM76aNpNFN/event-anime?node-id=0%3A1
 
 
-**28.Zaim Maulana**
-
-https://www.figma.com/file/P0Nibo6E9Mx3lKSZp2Gn7X/Wibucode-event?node-id=0%3A1
-
-
 
