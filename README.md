@@ -137,4 +137,6 @@ https://www.figma.com/file/TwaEExblpP7x1ATPsZJAsi/Untitled?node-id=2%3A45
 https://www.figma.com/file/wTM4sVQUalPMkM76aNpNFN/event-anime?node-id=0%3A1
 
 
+**28.Gradz**
 
+https://www.figma.com/file/pNl6KbbtfwUsCEqDjVbtef/Untitled
