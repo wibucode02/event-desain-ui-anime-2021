@@ -140,3 +140,7 @@ https://www.figma.com/file/wTM4sVQUalPMkM76aNpNFN/event-anime?node-id=0%3A1
 **28.Gradz**
 
 https://www.figma.com/file/pNl6KbbtfwUsCEqDjVbtef/Untitled
+
+**29.Usamah**
+
+https://www.figma.com/file/UjP4Eb4fDNe5ENXtbyrRHY/ebook?node-id=1%3A2
